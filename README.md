@@ -6,7 +6,6 @@
   - ➡️ 30+ Slots
   - ➡️ No Cooldown, Spam Protection
   - ➡️ Custom Game Bypasses
-  - ➡️ Very cheap price, Starting from $5
   - ➡️ Related support
 
 
